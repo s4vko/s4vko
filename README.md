@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="1200" height="821" alt="image" src="https://github.com/user-attachments/assets/1e1fa166-d5a0-46da-9898-88eefcbac02d" />
+
 
 <!--
 **INFOsvatelkizTG/INFOsvatelkizTG** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
