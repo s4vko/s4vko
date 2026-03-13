@@ -1,5 +1,6 @@
-<img width="1024" height="723" alt="image" src="https://github.com/user-attachments/assets/00e67f34-8fa6-43b7-9936-c783f5eff2e6" />
+<img width="1024" height="523" alt="image" src="https://github.com/user-attachments/assets/00e67f34-8fa6-43b7-9936-c783f5eff2e6" />
 
+                                                      WELCOME TO MY mini INFO!!!
 
 
 
