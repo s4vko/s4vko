@@ -1,6 +1,6 @@
 <img width="1024" height="523" alt="image" src="https://github.com/user-attachments/assets/00e67f34-8fa6-43b7-9936-c783f5eff2e6" />
 
-___ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤWELCOME TO MY mini INFO!!!___
+___ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤWELCOME TO MY mini INFO___
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 My name Savko, but just call me Sava/Сава,Шава ෆ! <img src="https://github.com/user-attachments/assets/d7ecdaec-e4da-44c4-a500-307f33fb11bb" width="55" height="55" />
