@@ -1,6 +1,4 @@
-<img src="https://i.ibb.co/TDzmrB31/68747470733a2f2f692e70696e696d672e636f6d2f373336782f61312f66352f30332f613166353033636365323863643236.jpg" alt="68747470733a2f2f692e70696e696d672e636f6d2f373336782f61312f66352f30332f613166353033636365323863643236" width="700" height="824" data-is360="0" class="cursor-zoom-in" style="width: 508.252px; height: 698px; display: block;">
-
-
+<img style="display: block;-webkit-user-select: none;margin: auto;cursor: zoom-in;background-color: hsl(0, 0%, 90%);transition: background-color 300ms;" src="https://api.imghippo.com/files/kq6010JTU.jpg" width="1204" height="920">
 
 
 
