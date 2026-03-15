@@ -1,4 +1,4 @@
-<img width="1024" height="523" alt="image" src="https://github.com/user-attachments/assets/00e67f34-8fa6-43b7-9936-c783f5eff2e6" />
+<img alt="Изображение пина-истории" class="iFOUS5" draggable="true" fetchpriority="high" loading="auto" elementtiming="StoryPinImageBlock-MainPinImage" src="https://i.pinimg.com/736x/35/ca/1d/35ca1d28fb6a2034d35593c66b654098.jpg">
 
 
 
