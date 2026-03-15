@@ -1,4 +1,4 @@
-<img alt="Изображение пина-истории" class="iFOUS5" draggable="true" fetchpriority="high" loading="auto" elementtiming="StoryPinImageBlock-MainPinImage" src="https://i.pinimg.com/736x/35/ca/1d/35ca1d28fb6a2034d35593c66b654098.jpg">
+<img alt="Изображение пина-истории" class="iFOUS5" draggable="true" fetchpriority="high" loading="auto" elementtiming="StoryPinImageBlock-MainPinImage" src="https://i.pinimg.com/736x/73/5d/5d/735d5da98bca37e88ae1b4415f0bfc74.jpg">
 
 
 
