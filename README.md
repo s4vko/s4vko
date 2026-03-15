@@ -1,4 +1,4 @@
-<img style="display: block;-webkit-user-select: none;margin: auto;background-color: hsl(0, 0%, 90%);transition: background-color 300ms;" src="https://i.pinimg.com/736x/35/ca/1d/35ca1d28fb6a2034d35593c66b654098.jpg">
+<img alt="" class="iFOUS5" draggable="true" fetchpriority="high" loading="auto" elementtiming="closeup-image-main-MainPinImage" src="https://i.pinimg.com/736x/39/03/51/3903511ea3648aa8b445404a2aec44a9.jpg" srcset="https://i.pinimg.com/736x/39/03/51/3903511ea3648aa8b445404a2aec44a9.jpg 736w, https://i.pinimg.com/1200x/39/03/51/3903511ea3648aa8b445404a2aec44a9.jpg 800w">
 
 
 
