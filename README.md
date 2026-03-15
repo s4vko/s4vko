@@ -1,4 +1,4 @@
-<img alt="" class="iFOUS5" draggable="true" fetchpriority="high" loading="auto" elementtiming="closeup-image-main-MainPinImage" src="https://i.pinimg.com/736x/a1/f5/03/a1f503cce28cd2615e337161087a5e4c.jpg" srcset="https://i.pinimg.com/736x/a1/f5/03/a1f503cce28cd2615e337161087a5e4c.jpg 600w, https://i.pinimg.com/1200x/a1/f5/03/a1f503cce28cd2615e337161087a5e4c.jpg 600w">
+<img src="https://i.ibb.co/TDzmrB31/68747470733a2f2f692e70696e696d672e636f6d2f373336782f61312f66352f30332f613166353033636365323863643236.jpg" alt="68747470733a2f2f692e70696e696d672e636f6d2f373336782f61312f66352f30332f613166353033636365323863643236" width="600" height="824" data-is360="0" class="cursor-zoom-in" style="width: 508.252px; height: 698px; display: block;">
 
 
 
