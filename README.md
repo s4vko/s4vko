@@ -1,5 +1,5 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![banner](https://github.com/user-attachments/assets/d63acc12-6f1f-450b-9a40-a1b9216ab02b)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![564255708-d63acc12-6f1f-450b-9a40-a1b9216ab02b (1)](https://github.com/user-attachments/assets/87ac261f-ff4e-45fa-9375-77e7bffb173e)
 
 
 <img width="2929" height="2064" alt="изображение_2026-03-16_185928384" src="https://github.com/user-attachments/assets/da8bab09-205c-4383-985e-eeca0b27d4a2" />
