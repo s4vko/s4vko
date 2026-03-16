@@ -2,7 +2,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![banner](https://github.com/user-attachments/assets/d63acc12-6f1f-450b-9a40-a1b9216ab02b)
 
 
-<img style="display: block;-webkit-user-select: none;margin: auto;cursor: zoom-in;background-color: hsl(0, 0%, 90%);transition: background-color 300ms;" src="https://api.imghippo.com/files/kq6010JTU.jpg" width="1204" height="920">
+<img width="2929" height="2064" alt="изображение_2026-03-16_185928384" src="https://github.com/user-attachments/assets/da8bab09-205c-4383-985e-eeca0b27d4a2" />
 
 
 
