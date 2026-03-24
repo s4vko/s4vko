@@ -1,6 +1,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="498" height="38" alt="image" src="https://github.com/user-attachments/assets/b39acb73-f525-45c8-a23f-f6f6e4d8d5a7" />
-<img width="1080" height="840" alt="Без названия65" src="https://github.com/user-attachments/assets/56ff267a-9fbd-40c7-af18-bcb033518e01" />
+![68747470733a2f2f6170692e696d67686970706f2e636f6d2f66696c65732f6b71363031304a54552e6a7067](https://github.com/user-attachments/assets/a1164d53-ad0d-4ea1-ae98-ed38a086fbed)
+
 
 
 
