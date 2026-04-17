@@ -1,4 +1,8 @@
-![4b8682c412dd582612758c4770550878](https://github.com/user-attachments/assets/4a4743cf-f8c8-40c3-9ca5-42743bd63836)
+<img width="736" height="460" alt="изображение_2026-04-18_004917466" src="https://github.com/user-attachments/assets/84bf08b1-5279-4130-bc16-1880c2bbaa59" />
+
+
+
+
 
 
 
