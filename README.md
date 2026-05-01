@@ -1,4 +1,5 @@
-<img width="1550" height="1280" alt="Без названия84_20260501232604" src="https://github.com/user-attachments/assets/3e630aa2-406a-4c7c-b6cd-84097a46496f" />
+<img width="736" height="546" alt="Без названия84_20260501232604" src="https://github.com/user-attachments/assets/16039013-ef3b-441f-8f88-d6a7984674f7" />
+
 
 
 
