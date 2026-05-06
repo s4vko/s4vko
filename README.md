@@ -1,5 +1,5 @@
 <img width="775" height="546" alt="Без названия94_20260506225437" src="https://github.com/user-attachments/assets/5188957b-b307-4dc3-b567-fa18c424841d" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="129" height="10" alt="cutiewelcome3" src="https://github.com/user-attachments/assets/394db048-ad9c-42fc-9bfd-c9586e3aa8cc" />
 
 
