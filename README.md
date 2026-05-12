@@ -6,7 +6,7 @@
 
 
 
-## ㅤㅤ<img src="https://supplies.ju.mp/assets/images/gallery05/14f86ae9_original.gif?v=6a50b904"> ㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤ<img src="https://supplies.ju.mp/assets/images/gallery05/14f86ae9_original.gif?v=6a50b904">
+## ㅤㅤ ㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤ
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˖𓍯ㅤⲇⲛⲓ : ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲁⲛⲇ ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖𓍯
 
 <img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
@@ -23,7 +23,7 @@
 <img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3e878f29-da7b-4057-b816-8514bd488ef7" />
 
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0227008f-4c5e-4e15-a020-ab3200b7002a/d9dc961-61d472c5-4971-435e-9792-94a13017b409.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAyMjcwMDhmLTRjNWUtNGUxNS1hMDIwLWFiMzIwMGI3MDAyYVwvZDlkYzk2MS02MWQ0NzJjNS00OTcxLTQzNWUtOTc5Mi05NGExMzAxN2I0MDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PeY_Zx0f0Vn_hb1-vPXE2btTR0md8VPXT8PNczhgUX8">
 
 
 
