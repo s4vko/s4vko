@@ -2,7 +2,8 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ea507208-8b64-4e3b-861a-c05f0259f47a" />
 <img src="https://supplies.ju.mp/assets/images/gallery02/90ddefae_original.png?v=6a50b904"> <img src="https://dl.glitter-graphics.com/pub/3764/3764721smuszbkapp.gif" width="99" height="56" class="graphic_image"><img width="99" height="56" alt="tumblr_6a17fcb81ff0b57414f2269e7463ec41_6c4e72db_100" src="https://private-user-images.githubusercontent.com/275759259/591309279-70daf043-0fe0-4465-80d5-f73573ec007b.webp?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzg2MjAyNDksIm5iZiI6MTc3ODYxOTk0OSwicGF0aCI6Ii8yNzU3NTkyNTkvNTkxMzA5Mjc5LTcwZGFmMDQzLTBmZTAtNDQ2NS04MGQ1LWY3MzU3M2VjMDA3Yi53ZWJwP1gtQW16LUFsZ29yaXRobT1BV1M0LUhNQUMtU0hBMjU2JlgtQW16LUNyZWRlbnRpYWw9QUtJQVZDT0RZTFNBNTNQUUs0WkElMkYyMDI2MDUxMiUyRnVzLWVhc3QtMSUyRnMzJTJGYXdzNF9yZXF1ZXN0JlgtQW16LURhdGU9MjAyNjA1MTJUMjEwNTQ5WiZYLUFtei1FeHBpcmVzPTMwMCZYLUFtei1TaWduYXR1cmU9YTYzMDRmNzIwOTg5Mjc3ZGMxNWYzYzFjZDlhYzUyNzQxYWYzNGE0MGEwNGM0NWY4ZjJkMTM1MDJjY2QxZjBiYyZYLUFtei1TaWduZWRIZWFkZXJzPWhvc3QmcmVzcG9uc2UtY29udGVudC10eXBlPWltYWdlJTJGd2VicCJ9.GVCFGYsJJffe1YD2xs5cPWSOCYmbP5smfxbs0-Jvo8g" style="max-width: 100%; height: auto; max-height: 56px;; aspect-ratio: 99 / 56; background-color: var(--bgColor-muted); border-radius: 6px" class="js-gh-image-fallback"><img src="https://files.catbox.moe/6vabax.png">
 
-<img width="775" height="534" alt="Без названия94_Восстановленный_20260513002208" src="https://github.com/user-attachments/assets/3491562d-67c6-495c-b96e-55f56a54a0b3" />
+<img width="775" height="534" alt="Без названия94_Восстановленный_20260513002743" src="https://github.com/user-attachments/assets/23092a3c-ee1f-4a11-8046-9ca02e49d384" />
+
 
 
 ## ㅤㅤ˗ˏˋ ´ˎ˗ ㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤㅤ˗ˏˋ ´ˎ˗
