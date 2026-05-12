@@ -12,14 +12,15 @@
 <img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
 <img src="https://popteamepic.carrd.co/assets/images/gallery61/d4cfb3bd.png?v10408301085951"><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ec862055-4309-4d2c-a69a-85a07f58bfa2" /><img width="99" height="56" alt="559870660-87f623e1-8b2c-4db7-9d48-0231e330426d" src="https://github.com/user-attachments/assets/3b26495e-d4a2-44d3-8502-01d96617a8c1" />
 <img src="https://i.postimg.cc/xd8bXdjL/gc4o9ym.png">
-<img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" /><img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
+<img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />
 <img width="98" height="53" alt="bunnies" src="https://github.com/user-attachments/assets/26614368-15cf-4602-b178-184e25566bc2" />
 <img width="99" height="56" alt="harpseal" src="https://github.com/user-attachments/assets/865346ca-c960-4206-8662-31f9a3080b13" />
 <img src="https://meowbark4000.neocities.org/other/stamps2/raii.gif">
 <img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
 <img src="https://i.postimg.cc/1zdxT720/asato-stamp-by-narukami90-d2mthd0.gif">
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless_stamp_by_stanleykamui_d3137p6.gif">
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />
+<img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3e878f29-da7b-4057-b816-8514bd488ef7" />
 
 
