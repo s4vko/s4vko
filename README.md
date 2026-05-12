@@ -16,8 +16,10 @@
 <img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
 <img src="https://i.postimg.cc/1zdxT720/asato-stamp-by-narukami90-d2mthd0.gif">
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless_stamp_by_stanleykamui_d3137p6.gif">
-<img src="https://meowbark4000.neocities.org/other/stamps2/loveless.png">
-<img src="https://meowbark4000.neocities.org/buttons/buttons2/d2r6kq5-3ca9035d-89f5-4a8c-a671-da499540e145.png">
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3e878f29-da7b-4057-b816-8514bd488ef7" />
+
+
 
 
 
