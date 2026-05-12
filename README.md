@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://supplies.ju.mp/assets/images/gallery02/90ddefae_original.png?v=6a50b904"> <img src="https://dl.glitter-graphics.com/pub/3764/3764721smuszbkapp.gif" width="99" height="56" class="graphic_image"><img src="https://files.catbox.moe/pdb9ts.gif">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://supplies.ju.mp/assets/images/gallery02/90ddefae_original.png?v=6a50b904"> <img src="https://dl.glitter-graphics.com/pub/3764/3764721smuszbkapp.gif" width="99" height="56" class="graphic_image"><img src="https://files.catbox.moe/pdb9ts.gif">
 
 <img width="775" height="546" alt="Без названия94_20260506225437" src="https://github.com/user-attachments/assets/a3c7b3f1-e3b8-48f3-a1c3-55bda4f6cbaf" />
 
