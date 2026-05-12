@@ -7,10 +7,10 @@
 ## ㅤㅤ˗ˏˋ ´ˎ˗ ㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤㅤ˗ˏˋ ´ˎ˗
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤ˖𓍯ㅤⲇⲛⲓ : ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲁⲛⲇ ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖𓍯
 
-<img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" />
+<img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
 <img width="99" alt="image" src="https://private-user-images.githubusercontent.com/263253100/559871681-f5882993-171c-44fb-b482-1b4db032464f.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzg2MTQ4MjksIm5iZiI6MTc3ODYxNDUyOSwicGF0aCI6Ii8yNjMyNTMxMDAvNTU5ODcxNjgxLWY1ODgyOTkzLTE3MWMtNDRmYi1iNDgyLTFiNGRiMDMyNDY0Zi5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTEyJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUxMlQxOTM1MjlaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT00YWYxNjhhNzE3NWE1NzY0NzE2ZDg5MGU1NTA1ZWFiNTkxODMzZTAxYWJiNzc3MTkxOWNhNTQ1MGVkNGMwOTJjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.VjjZuCvQuoNMsQybfxqHJmttnuIhpSc8LpD0kDBEDsI" style="max-width: 100%;"><img width="98" height="53" alt="bunnies" src="https://github.com/user-attachments/assets/26614368-15cf-4602-b178-184e25566bc2" />
-<img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
-<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" /><img src="https://vanessidial.neocities.org/css-sakura-platinum-stamp.gif" alt="">
+<img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png"><img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" />
+<img src="https://vanessidial.neocities.org/css-sakura-platinum-stamp.gif" alt="">
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97252ad0-47d9-45fd-8aca-5ba275269874" />
 
 
