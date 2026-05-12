@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ea507208-8b64-4e3b-861a-c05f0259f47a" />
 <img src="https://supplies.ju.mp/assets/images/gallery02/90ddefae_original.png?v=6a50b904"> <img src="https://dl.glitter-graphics.com/pub/3764/3764721smuszbkapp.gif" width="99" height="56" class="graphic_image"><img src="https://yellow-horse.neocities.org/stamps/cats5.png" width="99" height="56"><img src="https://files.catbox.moe/6vabax.png">
 
@@ -9,7 +9,8 @@
 
 <img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png"><img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />!<img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" />
 <img width="99" alt="image" src="https://private-user-images.githubusercontent.com/263253100/559871681-f5882993-171c-44fb-b482-1b4db032464f.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzg2MTQ4MjksIm5iZiI6MTc3ODYxNDUyOSwicGF0aCI6Ii8yNjMyNTMxMDAvNTU5ODcxNjgxLWY1ODgyOTkzLTE3MWMtNDRmYi1iNDgyLTFiNGRiMDMyNDY0Zi5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTEyJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUxMlQxOTM1MjlaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT00YWYxNjhhNzE3NWE1NzY0NzE2ZDg5MGU1NTA1ZWFiNTkxODMzZTAxYWJiNzc3MTkxOWNhNTQ1MGVkNGMwOTJjJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.VjjZuCvQuoNMsQybfxqHJmttnuIhpSc8LpD0kDBEDsI" style="max-width: 100%;">
-<img width="99" height="56" alt="loveless____soubi_ii_by_m0nyet_d1r9dm6" src="https://github.com/user-attachments/assets/a3f6f9f9-1784-4179-9f57-3bc895d545b2" /><img width="99" height="56" alt="d15y034-32c63de4-da94-4ecb-b0fb-f7fa9c5451f2" src="https://github.com/user-attachments/assets/2277db95-3e2b-41ac-850b-06bfb1568a2a" /><img width="99" height="56" alt="559871804-bae9d2f6-67ee-494a-b671-0895cb44e4b3" src="https://github.com/user-attachments/assets/4b3507b3-2968-4c42-ba97-151c56461430" /><img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
+<img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
+<img src="https://vanessidial.neocities.org/css-sakura-platinum-stamp.gif" alt="">
 
 
 
