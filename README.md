@@ -6,7 +6,7 @@
 
 
 
-## ㅤㅤ ㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤ
+## ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤ
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˖𓍯ㅤⲇⲛⲓ : ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲁⲛⲇ ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖𓍯
 
 <img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
