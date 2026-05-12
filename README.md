@@ -13,8 +13,8 @@
 <img width="98" height="53" alt="bunnies" src="https://github.com/user-attachments/assets/26614368-15cf-4602-b178-184e25566bc2" />
 <img width="99" height="56" alt="harpseal" src="https://github.com/user-attachments/assets/865346ca-c960-4206-8662-31f9a3080b13" />
 <img src="https://meowbark4000.neocities.org/other/stamps2/raii.gif">
-
-
+<img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
+<img src="https://i.postimg.cc/1zdxT720/asato-stamp-by-narukami90-d2mthd0.gif">
 
 
 
