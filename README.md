@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ea507208-8b64-4e3b-861a-c05f0259f47a" />
 <img src="https://supplies.ju.mp/assets/images/gallery02/90ddefae_original.png?v=6a50b904"> <img src="https://dl.glitter-graphics.com/pub/3764/3764721smuszbkapp.gif" width="99" height="56" class="graphic_image"><img src="https://yellow-horse.neocities.org/stamps/cats5.png" width="99" height="56"><img src="https://files.catbox.moe/6vabax.png">
 
@@ -8,8 +8,8 @@
 
 
 
-## ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤ
-### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˖𓍯ㅤⲇⲛⲓ : ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲁⲛⲇ ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖𓍯
+## ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤ
+### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˖𓍯ㅤⲇⲛⲓ : ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲁⲛⲇ ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖𓍯
 
 <img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
 <img src="https://popteamepic.carrd.co/assets/images/gallery61/d4cfb3bd.png?v10408301085951"><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ec862055-4309-4d2c-a69a-85a07f58bfa2" /><img width="99" height="56" alt="559870660-87f623e1-8b2c-4db7-9d48-0231e330426d" src="https://github.com/user-attachments/assets/3b26495e-d4a2-44d3-8502-01d96617a8c1" />
