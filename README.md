@@ -2,7 +2,8 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ea507208-8b64-4e3b-861a-c05f0259f47a" />
 <img src="https://supplies.ju.mp/assets/images/gallery02/90ddefae_original.png?v=6a50b904"> <img src="https://dl.glitter-graphics.com/pub/3764/3764721smuszbkapp.gif" width="99" height="56" class="graphic_image"><img src="https://yellow-horse.neocities.org/stamps/cats5.png" width="99" height="56"><img src="https://files.catbox.moe/6vabax.png">
 
-<img width="775" height="534" alt="Без названия94_Восстановленный_20260513191621" src="https://github.com/user-attachments/assets/6d3f5865-19ff-4659-937c-166024f4102a" />
+<img width="775" height="534" alt="Без названия94_Восстановленный_20260514002245" src="https://github.com/user-attachments/assets/66972c1e-7aeb-4c25-8aa2-259fbc3901fe" />
+
 
 
 
