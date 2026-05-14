@@ -24,8 +24,8 @@
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless_stamp_by_stanleykamui_d3137p6.gif">
 <img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3e878f29-da7b-4057-b816-8514bd488ef7" />
-<img src="https://64.media.tumblr.com/5bd1e3592edbce8b63b0f345edac7fe3/9cd667dbf2fb1c4b-78/s100x200/dd603bc2aae8f7420c7989219941692f0cd0d93a.gif" alt="rosy maple">
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9865a25b-3dcf-4076-ad61-b1e7a6a31980/dadx4dx-aea13381-5993-4403-9085-ac6b53907589.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi85ODY1YTI1Yi0zZGNmLTQwNzYtYWQ2MS1iMWU3YTZhMzE5ODAvZGFkeDRkeC1hZWExMzM4MS01OTkzLTQ0MDMtOTA4NS1hYzZiNTM5MDc1ODkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ECzg3DCTKWQGeINIgXUOfi4Xl_glVe2fct192y000MI" alt="candles">
+<img src="https://i.ibb.co/M57gJC4F/misinfo.webp">
+<img src="https://i.ibb.co/v4kNWwqD/supersonico2.png">
 <img src="https://64.media.tumblr.com/02a6e371b6ac533a02923ad33b246c59/7e100f44603c3879-6a/s100x200/190bfd3ad818d187d84eea786e4a9f7d43e34084.gifv">
 <img src="https://64.media.tumblr.com/486c35dde890ccdc713c11ac97f3cff7/eed262c3dd030bba-8e/s100x200/ad5f7d9e6dc289088337b20c4cb71b591575461d.gifv">
 <img src="https://64.media.tumblr.com/839f6cd13168341e62e9beaf45782e4a/7e100f44603c3879-87/s100x200/2f529229e7976fc08064a93625eff9b892839eaa.pnj">
