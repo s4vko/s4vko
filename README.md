@@ -38,7 +38,9 @@
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-23b8176f9eac25.webp">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-1d49ae42101f9a.png">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-537f9bf898a318.gif">
+<img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-10c5cd71bea25e.webp">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/tumblr_inline_oqo3f7JD0X1u5rvwj_500.gif">
+<img src="https://64.media.tumblr.com/da2577ae781ca516a06ba667f81fa77e/671a623c5b532460-1f/s100x200/ecaf9dbf8d11a2f864966b58cd00917e344d9f83.webp">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="41" height="38" alt="lamento31_ani" src="https://github.com/user-attachments/assets/5520d4ea-e3f0-4557-be90-49825978c57f" /><img src="nitropluschiral/lamento31_ani.gif" alt="konoe"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0227008f-4c5e-4e15-a020-ab3200b7002a/d9dc961-61d472c5-4971-435e-9792-94a13017b409.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAyMjcwMDhmLTRjNWUtNGUxNS1hMDIwLWFiMzIwMGI3MDAyYVwvZDlkYzk2MS02MWQ0NzJjNS00OTcxLTQzNWUtOTc5Mi05NGExMzAxN2I0MDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PeY_Zx0f0Vn_hb1-vPXE2btTR0md8VPXT8PNczhgUX8"><img src="nitropluschiral/lamento34_ani1.gif" alt="asato"><img width="38" height="45" alt="lamento28_ani2" src="https://github.com/user-attachments/assets/1d0f1948-62d4-4dec-9196-2a7085c022fe" />
 
