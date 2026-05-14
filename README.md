@@ -16,7 +16,7 @@
 <img src="https://i.postimg.cc/xd8bXdjL/gc4o9ym.png">
 <img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />
-<img width="101" height="57" alt="08c504f96ce1e532a63fd697328e692ec04836d8" src="https://github.com/user-attachments/assets/7b1a6520-3c35-4917-ae97-7c916f8ee18e" />
+<img src="https://i.ibb.co/M57gJC4F/misinfo.webp">
 <img src="https://64.media.tumblr.com/6002ed494fe085e0852b911d2b09802e/27156b1a3cb3dbf4-81/s100x200/04ee9432778946b1d46dc1c4197486cdeda2226e.gifv">
 <img src="https://meowbark4000.neocities.org/other/stamps2/raii.gif">
 <img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
@@ -24,7 +24,7 @@
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless_stamp_by_stanleykamui_d3137p6.gif">
 <img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3e878f29-da7b-4057-b816-8514bd488ef7" />
-<img src="https://i.ibb.co/M57gJC4F/misinfo.webp">
+<img width="101" height="57" alt="08c504f96ce1e532a63fd697328e692ec04836d8" src="https://github.com/user-attachments/assets/7b1a6520-3c35-4917-ae97-7c916f8ee18e" />
 <img src="https://external-media.spacehey.net/media/sduU9fjp5K7-7J3faiBL8Pgip0d6ZGW2tjALLYumd60U=/https://64.media.tumblr.com/ec7fad5fd5017ab47afcfd69f4684fdd/b0e722e6f4b32e98-6e/s100x200/b85cbe5722ba2b704a8f9a44d3a969c1de1dba88.pnj" loading="lazy">
 <img src="https://64.media.tumblr.com/02a6e371b6ac533a02923ad33b246c59/7e100f44603c3879-6a/s100x200/190bfd3ad818d187d84eea786e4a9f7d43e34084.gifv">
 <img src="https://64.media.tumblr.com/486c35dde890ccdc713c11ac97f3cff7/eed262c3dd030bba-8e/s100x200/ad5f7d9e6dc289088337b20c4cb71b591575461d.gifv">
