@@ -17,7 +17,7 @@
 <img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />
 <img width="101" height="57" alt="08c504f96ce1e532a63fd697328e692ec04836d8" src="https://github.com/user-attachments/assets/7b1a6520-3c35-4917-ae97-7c916f8ee18e" />
-<img width="99" height="56" alt="harpseal" src="https://github.com/user-attachments/assets/865346ca-c960-4206-8662-31f9a3080b13" />
+<img src="https://64.media.tumblr.com/6002ed494fe085e0852b911d2b09802e/27156b1a3cb3dbf4-81/s100x200/04ee9432778946b1d46dc1c4197486cdeda2226e.gifv">
 <img src="https://meowbark4000.neocities.org/other/stamps2/raii.gif">
 <img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
 <img src="https://i.postimg.cc/1zdxT720/asato-stamp-by-narukami90-d2mthd0.gif">
