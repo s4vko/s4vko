@@ -25,11 +25,11 @@
 <img src="https://meowbark4000.neocities.org/other/stamps2/towa1.png">
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3e878f29-da7b-4057-b816-8514bd488ef7" />
 <img src="https://i.ibb.co/M57gJC4F/misinfo.webp">
-<img src="https://i.ibb.co/v4kNWwqD/supersonico2.png">
+<img src="https://external-media.spacehey.net/media/sduU9fjp5K7-7J3faiBL8Pgip0d6ZGW2tjALLYumd60U=/https://64.media.tumblr.com/ec7fad5fd5017ab47afcfd69f4684fdd/b0e722e6f4b32e98-6e/s100x200/b85cbe5722ba2b704a8f9a44d3a969c1de1dba88.pnj" loading="lazy">
 <img src="https://64.media.tumblr.com/02a6e371b6ac533a02923ad33b246c59/7e100f44603c3879-6a/s100x200/190bfd3ad818d187d84eea786e4a9f7d43e34084.gifv">
 <img src="https://64.media.tumblr.com/486c35dde890ccdc713c11ac97f3cff7/eed262c3dd030bba-8e/s100x200/ad5f7d9e6dc289088337b20c4cb71b591575461d.gifv">
 <img src="https://64.media.tumblr.com/839f6cd13168341e62e9beaf45782e4a/7e100f44603c3879-87/s100x200/2f529229e7976fc08064a93625eff9b892839eaa.pnj">
-<img src="https://external-media.spacehey.net/media/sduU9fjp5K7-7J3faiBL8Pgip0d6ZGW2tjALLYumd60U=/https://64.media.tumblr.com/ec7fad5fd5017ab47afcfd69f4684fdd/b0e722e6f4b32e98-6e/s100x200/b85cbe5722ba2b704a8f9a44d3a969c1de1dba88.pnj" loading="lazy">
+<img src="https://i.ibb.co/v4kNWwqD/supersonico2.png">
 <img class="pfp-fallback" src="https://external-media.spacehey.net/media/s5R-LUSgymrXX9pTIiD__y26YL5JyPnpIpqaL8s3yoEw=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1f3bafa6-92d1-45ae-b6d1-6721cf8914d7/d117o7s-024135b1-673f-498f-ac79-165d3537fa09.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFmM2JhZmE2LTkyZDEtNDVhZS1iNmQxLTY3MjFjZjg5MTRkN1wvZDExN283cy0wMjQxMzViMS02NzNmLTQ5OGYtYWM3OS0xNjVkMzUzN2ZhMDkuanBnIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.a8-ctGnimjFlgxjtmCc5dgpmvjVJSWq0u2QoPcND-DE" alt="zzzzz" loading="lazy">
 <img src="https://i.ibb.co/KcF4CJTT/drawing.gif">
 
