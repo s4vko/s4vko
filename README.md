@@ -8,7 +8,8 @@
 
 
 
-## ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤㅤㅤㅤ
+## ㅤㅤ ㅤㅤㅤㅤㅤ<img width="41" height="38" alt="lamento31_ani" src="https://github.com/user-attachments/assets/5520d4ea-e3f0-4557-be90-49825978c57f" />ㅤㅤ꒰ 𝓝𝓮𝓴𝓸 𝓰𝓪 𝓷𝓮𝓴𝓸 𝓭𝓮 𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲 ꒱ㅤㅤ<img width="38" height="45" alt="lamento28_ani2" src="https://github.com/user-attachments/assets/9d011c07-30bd-490b-8cf3-06f717e676a7" />
+ㅤㅤ
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˖𓍯ㅤⲇⲛⲓ : ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲁⲛⲇ ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖𓍯
 
 <img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
@@ -35,6 +36,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="nitropluschiral/lamento31_ani.gif" alt="konoe"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0227008f-4c5e-4e15-a020-ab3200b7002a/d9dc961-61d472c5-4971-435e-9792-94a13017b409.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAyMjcwMDhmLTRjNWUtNGUxNS1hMDIwLWFiMzIwMGI3MDAyYVwvZDlkYzk2MS02MWQ0NzJjNS00OTcxLTQzNWUtOTc5Mi05NGExMzAxN2I0MDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PeY_Zx0f0Vn_hb1-vPXE2btTR0md8VPXT8PNczhgUX8"><img src="nitropluschiral/lamento34_ani1.gif" alt="asato">
+
 
 
 
