@@ -13,11 +13,11 @@
 ㅤㅤ
 ### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˖𓍯ㅤⲇⲛⲓ : ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲁⲛⲇ ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖𓍯
 
-<img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
 <img src="https://popteamepic.carrd.co/assets/images/gallery61/d4cfb3bd.png?v10408301085951"><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ec862055-4309-4d2c-a69a-85a07f58bfa2" /><img src="https://i.ibb.co/ZR4mxk10/pinkandgreen.webp">
 <img src="https://i.postimg.cc/xd8bXdjL/gc4o9ym.png">
 <img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />
+<img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">
 <img src="https://i.ibb.co/M57gJC4F/misinfo.webp">
 <img src="https://64.media.tumblr.com/6002ed494fe085e0852b911d2b09802e/27156b1a3cb3dbf4-81/s100x200/04ee9432778946b1d46dc1c4197486cdeda2226e.gifv">
 <img src="https://meowbark4000.neocities.org/other/stamps2/raii.gif">
@@ -44,6 +44,7 @@
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f4b0b83b-48d9-4aca-a44a-315a53f27f07/d9ssxqq-9c638110-01fd-49c2-9e00-de449303bb4b.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y0YjBiODNiLTQ4ZDktNGFjYS1hNDRhLTMxNWE1M2YyN2YwN1wvZDlzc3hxcS05YzYzODExMC0wMWZkLTQ5YzItOWUwMC1kZTQ0OTMwM2JiNGIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.W0ULIpLbpjztEIAIl7mutrBDldZn12RfTs2R2zOHvHc">
 <img width="99" height="56" alt="304-load" src="https://github.com/user-attachments/assets/3548f6e1-efee-46a7-a3e5-998f92d9d16c" />
 <img width="105" height="60" alt="213-glitter" src="https://github.com/user-attachments/assets/d7779928-20ce-4c7f-9e99-b62836c98193" />
+<img src="https://meowbark4000.neocities.org/other/stamps2/yaoimyantidrug.png">
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless_stamp_by_stanleykamui_d3137p6.gif">
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless.png">
 
