@@ -47,6 +47,11 @@
 <img src="https://meowbark4000.neocities.org/other/stamps2/yaoimyantidrug.png">
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless_stamp_by_stanleykamui_d3137p6.gif">
 <img src="https://meowbark4000.neocities.org/other/stamps2/loveless.png">
+<img src="https://meowbark4000.neocities.org/buttons/miku/d15y034-32c63de4-da94-4ecb-b0fb-f7fa9c5451f2.png">
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6a432426-ac3c-472d-90e5-5725bdf607a0/dcd71cy-1339092d-a076-412a-9be4-7da1cbdfb631.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzZhNDMyNDI2LWFjM2MtNDcyZC05MGU1LTU3MjViZGY2MDdhMFwvZGNkNzFjeS0xMzM5MDkyZC1hMDc2LTQxMmEtOWJlNC03ZGExY2JkZmI2MzEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ax0U-jWdOUR_t-vFSP1bfMwTn5YWkNlcbkzB7-JjqIA">
+<img width="99" height="56" alt="215-glitter" src="https://github.com/user-attachments/assets/c8880044-7838-4660-bc46-84fe97e81847" />
+<img width="99" height="56" alt="216-opal" src="https://github.com/user-attachments/assets/ab78cc7d-6c17-4507-ba21-c47dc2121329" />
+
 
 ![](https://komarev.com/ghpvc/?username=s4vko&label=^+^+&style=flat&abbreviated=true)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0227008f-4c5e-4e15-a020-ab3200b7002a/d9dc961-61d472c5-4971-435e-9792-94a13017b409.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAyMjcwMDhmLTRjNWUtNGUxNS1hMDIwLWFiMzIwMGI3MDAyYVwvZDlkYzk2MS02MWQ0NzJjNS00OTcxLTQzNWUtOTc5Mi05NGExMzAxN2I0MDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PeY_Zx0f0Vn_hb1-vPXE2btTR0md8VPXT8PNczhgUX8">
 
