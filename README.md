@@ -34,13 +34,14 @@
 <img src="https://i.ibb.co/v4kNWwqD/supersonico2.png">
 <img class="pfp-fallback" src="https://external-media.spacehey.net/media/s5R-LUSgymrXX9pTIiD__y26YL5JyPnpIpqaL8s3yoEw=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1f3bafa6-92d1-45ae-b6d1-6721cf8914d7/d117o7s-024135b1-673f-498f-ac79-165d3537fa09.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFmM2JhZmE2LTkyZDEtNDVhZS1iNmQxLTY3MjFjZjg5MTRkN1wvZDExN283cy0wMjQxMzViMS02NzNmLTQ5OGYtYWM3OS0xNjVkMzUzN2ZhMDkuanBnIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.a8-ctGnimjFlgxjtmCc5dgpmvjVJSWq0u2QoPcND-DE" alt="zzzzz" loading="lazy">
 <img src="https://i.ibb.co/KcF4CJTT/drawing.gif">
+<img src="https://files.catbox.moe/t97ywj.webp">
 <img width="99" height="56" alt="1000070676" src="https://github.com/user-attachments/assets/64b52dab-f5f2-4da1-98ed-8555853558f6" />
 <img width="99" height="56" alt="1000070680" src="https://github.com/user-attachments/assets/fab2656c-65c5-4321-9b5e-d04a16c57ba3" />
-<img width="99" height="56" alt="1000070673" src="https://github.com/user-attachments/assets/ee61fd89-c105-4c13-8114-a58a3fd601be" />
 <img width="99" height="56" alt="1000070672" src="https://github.com/user-attachments/assets/5b2bda54-f4a6-40a7-8fbb-39db5e7348c6" />
 <img width="99" height="56" alt="1000070681" src="https://github.com/user-attachments/assets/8b635c1a-d600-4323-a44a-f8d3131e152f" />
 <img width="99" height="56" alt="1000070682" src="https://github.com/user-attachments/assets/3a2cffdb-4354-4f77-ae57-bcb89db0c3f2" />
 <img width="99" height="56" alt="1000070683" src="https://github.com/user-attachments/assets/7e4fa546-1ee6-469b-9137-07071bf8938d" />
+<img src="https://files.catbox.moe/g8rtcv.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/tumblr_inline_oqo3f7JD0X1u5rvwj_500.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-22d93d7381fd85.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-23b8176f9eac25.webp">
