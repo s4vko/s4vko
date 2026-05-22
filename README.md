@@ -32,7 +32,7 @@
 <img src="https://64.media.tumblr.com/486c35dde890ccdc713c11ac97f3cff7/eed262c3dd030bba-8e/s100x200/ad5f7d9e6dc289088337b20c4cb71b591575461d.gifv">
 <img src="https://64.media.tumblr.com/839f6cd13168341e62e9beaf45782e4a/7e100f44603c3879-87/s100x200/2f529229e7976fc08064a93625eff9b892839eaa.pnj">
 <img src="https://i.ibb.co/v4kNWwqD/supersonico2.png">
-<img src="https://i.ibb.co/WvCJZGxk/boots.png">
+<img src="https://i.ibb.co/QvN5vn5z/heartbeat.webp">
 <img src="https://i.ibb.co/KcF4CJTT/drawing.gif">
 <img src="https://files.catbox.moe/t97ywj.webp">
 <img width="99" height="56" alt="1000070676" src="https://github.com/user-attachments/assets/64b52dab-f5f2-4da1-98ed-8555853558f6" />
