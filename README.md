@@ -24,7 +24,7 @@
 <img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
 <img src="https://i.postimg.cc/1zdxT720/asato-stamp-by-narukami90-d2mthd0.gif">
 ![1000070635](https://github.com/user-attachments/assets/20f8be84-1d5c-4b8e-be72-a57da1b65d21)
-<img src="https://64.media.tumblr.com/6002ed494fe085e0852b911d2b09802e/27156b1a3cb3dbf4-81/s100x200/04ee9432778946b1d46dc1c4197486cdeda2226e.gifv">
+<img src="https://i.ibb.co/LXZxD3Z0/catface.jpg">
 <img src="https://i.ibb.co/M57gJC4F/misinfo.webp">
 <img width="101" height="57" alt="08c504f96ce1e532a63fd697328e692ec04836d8" src="https://github.com/user-attachments/assets/7b1a6520-3c35-4917-ae97-7c916f8ee18e" />
 <img src="https://external-media.spacehey.net/media/sduU9fjp5K7-7J3faiBL8Pgip0d6ZGW2tjALLYumd60U=/https://64.media.tumblr.com/ec7fad5fd5017ab47afcfd69f4684fdd/b0e722e6f4b32e98-6e/s100x200/b85cbe5722ba2b704a8f9a44d3a969c1de1dba88.pnj" loading="lazy">
