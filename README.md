@@ -24,7 +24,7 @@
 <img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
 <img src="https://i.postimg.cc/1zdxT720/asato-stamp-by-narukami90-d2mthd0.gif">
 ![1000070635](https://github.com/user-attachments/assets/20f8be84-1d5c-4b8e-be72-a57da1b65d21)
-<img src="https://i.ibb.co/M57gJC4F/misinfo.webp">
+<img src="https://64.media.tumblr.com/4f3f77fab521c7b785670f267efdb090/373b458950a3a34b-f2/s250x400/66d992c45db89bd11dfcfd4549e3049d62920145.pnj">
 <img src="https://i.ibb.co/gZ3h1S4k/kitty.png">
 <img width="101" height="57" alt="08c504f96ce1e532a63fd697328e692ec04836d8" src="https://github.com/user-attachments/assets/7b1a6520-3c35-4917-ae97-7c916f8ee18e" />
 <img src="https://external-media.spacehey.net/media/sduU9fjp5K7-7J3faiBL8Pgip0d6ZGW2tjALLYumd60U=/https://64.media.tumblr.com/ec7fad5fd5017ab47afcfd69f4684fdd/b0e722e6f4b32e98-6e/s100x200/b85cbe5722ba2b704a8f9a44d3a969c1de1dba88.pnj" loading="lazy">
@@ -32,7 +32,7 @@
 <img src="https://64.media.tumblr.com/486c35dde890ccdc713c11ac97f3cff7/eed262c3dd030bba-8e/s100x200/ad5f7d9e6dc289088337b20c4cb71b591575461d.gifv">
 <img src="https://64.media.tumblr.com/839f6cd13168341e62e9beaf45782e4a/7e100f44603c3879-87/s100x200/2f529229e7976fc08064a93625eff9b892839eaa.pnj">
 <img src="https://i.ibb.co/v4kNWwqD/supersonico2.png">
-<img class="pfp-fallback" src="https://external-media.spacehey.net/media/s5R-LUSgymrXX9pTIiD__y26YL5JyPnpIpqaL8s3yoEw=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1f3bafa6-92d1-45ae-b6d1-6721cf8914d7/d117o7s-024135b1-673f-498f-ac79-165d3537fa09.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFmM2JhZmE2LTkyZDEtNDVhZS1iNmQxLTY3MjFjZjg5MTRkN1wvZDExN283cy0wMjQxMzViMS02NzNmLTQ5OGYtYWM3OS0xNjVkMzUzN2ZhMDkuanBnIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.a8-ctGnimjFlgxjtmCc5dgpmvjVJSWq0u2QoPcND-DE" alt="zzzzz" loading="lazy">
+<img src="https://i.ibb.co/WvCJZGxk/boots.png">
 <img src="https://i.ibb.co/KcF4CJTT/drawing.gif">
 <img src="https://files.catbox.moe/t97ywj.webp">
 <img width="99" height="56" alt="1000070676" src="https://github.com/user-attachments/assets/64b52dab-f5f2-4da1-98ed-8555853558f6" />
