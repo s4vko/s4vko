@@ -28,6 +28,7 @@
 <img width="99" height="56" alt="1000070682" src="https://github.com/user-attachments/assets/3a2cffdb-4354-4f77-ae57-bcb89db0c3f2" />
 <img width="99" height="56" alt="1000070683" src="https://github.com/user-attachments/assets/7e4fa546-1ee6-469b-9137-07071bf8938d" />
 <img src="https://files.catbox.moe/g8rtcv.gif">
+<img src="https://meowbark4000.neocities.org/other/stamps2/loveless_stamp_by_stanleykamui_d3137p6.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/tumblr_inline_oqo3f7JD0X1u5rvwj_500.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-22d93d7381fd85.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-23b8176f9eac25.webp">
