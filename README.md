@@ -24,8 +24,8 @@
 <img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif">
 <img src="https://i.postimg.cc/1zdxT720/asato-stamp-by-narukami90-d2mthd0.gif">
 ![1000070635](https://github.com/user-attachments/assets/20f8be84-1d5c-4b8e-be72-a57da1b65d21)
+<img width="99" height="56" alt="591307183-5cde2d98-4d9a-47fa-9932-522354a2dd8b (1)" src="https://github.com/user-attachments/assets/a58d695b-5755-49f4-a9f0-f574d1ceb99b" />
 <img src="https://yellow-horse.neocities.org/stamps/cats1.gif" width="99" height="56">
-<img width="99" height="57" alt="изображение_2026-05-22_155721667" src="https://github.com/user-attachments/assets/aef13f26-3af3-4642-8e22-42b95ac947d0" />
 <img width="101" height="57" alt="08c504f96ce1e532a63fd697328e692ec04836d8" src="https://github.com/user-attachments/assets/7b1a6520-3c35-4917-ae97-7c916f8ee18e" />
 <img src="https://external-media.spacehey.net/media/sduU9fjp5K7-7J3faiBL8Pgip0d6ZGW2tjALLYumd60U=/https://64.media.tumblr.com/ec7fad5fd5017ab47afcfd69f4684fdd/b0e722e6f4b32e98-6e/s100x200/b85cbe5722ba2b704a8f9a44d3a969c1de1dba88.pnj" loading="lazy">
 <img src="https://64.media.tumblr.com/02a6e371b6ac533a02923ad33b246c59/7e100f44603c3879-6a/s100x200/190bfd3ad818d187d84eea786e4a9f7d43e34084.gifv">
