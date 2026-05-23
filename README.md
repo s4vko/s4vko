@@ -28,7 +28,8 @@
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/tumblr_inline_oqo3f7JD0X1u5rvwj_500.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-22d93d7381fd85.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-23b8176f9eac25.webp">
-<img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-1d49ae42101f9a.png">
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/59419444-bb5a-4f44-8186-dc9ea1374abc" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c94bdf95-23a1-4cca-8f4e-454cd3e39578" />
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-537f9bf898a318.gif">
 <img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-10c5cd71bea25e.webp">
 <img src="https://64.media.tumblr.com/da2577ae781ca516a06ba667f81fa77e/671a623c5b532460-1f/s100x200/ecaf9dbf8d11a2f864966b58cd00917e344d9f83.webp">
