@@ -6,7 +6,7 @@
 
 <img width="775" height="534" alt="Без названия94_Восстановленный_20260514002245" src="https://github.com/user-attachments/assets/66972c1e-7aeb-4c25-8aa2-259fbc3901fe" />
 
-# ㅤㅤ ㅤㅤㅤ $\color{PowderBlue}꒰$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{MistyRose}𝓝𝓮𝓴𝓸 𝓰𝓪ㅤ𝓷𝓮𝓴𝓸 𝓭𝓮ㅤ𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{PowderBlue}꒱$
+# ㅤㅤ ㅤ $\color{PowderBlue}꒰$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{MistyRose}𝓝𝓮𝓴𝓸 𝓰𝓪ㅤ𝓷𝓮𝓴𝓸 𝓭𝓮ㅤ𝓪𝓻𝓾 𝔂𝓸𝓾 𝓷𝓲$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{PowderBlue}꒱$
 ### ㅤㅤㅤㅤㅤㅤㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>ㅤ $\color{Cornsilk}˖⏖ㅤⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖⏖$ ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
 
