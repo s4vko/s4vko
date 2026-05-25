@@ -4,7 +4,7 @@
 <img src="https://supplies.ju.mp/assets/images/gallery02/90ddefae_original.png?v=6a50b904"> <img src="https://dl.glitter-graphics.com/pub/3764/3764721smuszbkapp.gif" width="99" height="56" class="graphic_image"><img src="https://yellow-horse.neocities.org/stamps/cats5.png" width="99" height="56"><img src="https://files.catbox.moe/6vabax.png">
 
 
-<img width="775" height="534" alt="Без названия94_Восстановленный_20260514002245" src="https://github.com/user-attachments/assets/66972c1e-7aeb-4c25-8aa2-259fbc3901fe" />
+<img width="775" height="534" alt="1000070874" src="https://github.com/user-attachments/assets/192e1d52-3073-4198-996c-59222f1a2e74" />
 
 # ㅤㅤ ㅤㅤ $\color{PowderBlue}꒰$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{MistyRose}𝒩𝑒𝓀𝑜 𝑔𝒶 𝓃𝑒𝓀𝑜 𝒹𝑒 𝒶𝓇𝓊 𝓎𝑜𝓊 𝓃𝒾$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{PowderBlue}꒱$
 ### ㅤㅤㅤㅤㅤㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>ㅤ $\color{Cornsilk}˖⏖ㅤⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖⏖$ ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
