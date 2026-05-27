@@ -1,6 +1,5 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=/•᷅‎‎•᷄\੭+meow+&style=flat-square&abbreviated=true&color=FFB6C1)<img src="https://i6.glitter-graphics.org/pub/2100/2100236nfawaeox24.gif" width="18" height="20" class="graphic_image">
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=/•᷅‎‎•᷄\੭+meow+&style=flat-square&abbreviated=true&color=FFB6C1) <img src="https://dl2.glitter-graphics.net/pub/1968/1968192xkfwolmiu5.gif" border="0">
 
 
 <img width="775" height="534" alt="1000070874" src="https://github.com/user-attachments/assets/192e1d52-3073-4198-996c-59222f1a2e74" />
