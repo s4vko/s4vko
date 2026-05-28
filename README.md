@@ -7,6 +7,8 @@
 # ㅤㅤㅤㅤ  $\color{PowderBlue}꒰$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{MistyRose}𝒩𝑒𝓀𝑜𝑔𝒶˳𝓃𝑒𝓀𝑜𝒹𝑒˳𝒶𝓇𝓊˳𝓎𝑜𝓊𝓃𝒾$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{PowderBlue}꒱$
 ### ㅤㅤㅤㅤㅤㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>ㅤ $\color{Cornsilk}˖⏖ㅤⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖⏖$ ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
+<img width="785" height="23" alt="1000070918" src="https://github.com/user-attachments/assets/95d68e07-082a-4697-83de-f793bb874f99" />
+
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
 <img src="https://popteamepic.carrd.co/assets/images/gallery61/d4cfb3bd.png?v10408301085951"><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ec862055-4309-4d2c-a69a-85a07f58bfa2" /><img src="https://i.ibb.co/ZR4mxk10/pinkandgreen.webp">
