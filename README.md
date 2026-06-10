@@ -1,5 +1,5 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=ㅤ+ㅤ+ฅ/ᐠᓀ+ﻌ+ᓂマฅ+੭+meow+ㅤ+ㅤ&style=plastic&abbreviated&color=FFB6C1) <img src="https://dl2.glitter-graphics.net/pub/1968/1968192xkfwolmiu5.gif" border="0">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=ㅤ+ㅤ+ฅ/ᐠᓀ+ﻌ+ᓂマฅ+੭+meow+ㅤ+ㅤ&style=plastic&abbreviated&color=FFB6C1) <img width="20" height="20" alt="tumblr_204cfeb8f36b1dd06763d6810e01946b_c15d4967_75" src="https://github.com/user-attachments/assets/ba7dfceb-987f-4309-b13c-6cff9bb04e8f" />
 
 <img width="775" height="534" alt="1000070933" src="https://github.com/user-attachments/assets/607e4190-b191-4678-9ec6-9571351f2b81" />
 
