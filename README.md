@@ -1,7 +1,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=ㅤ+ㅤ+ฅ/ᐠᓀ+ﻌ+ᓂマฅ+੭+meow+ㅤ+ㅤ&style=plastic&abbreviated&color=FFB6C1) <img width="20" height="20" alt="tumblr_204cfeb8f36b1dd06763d6810e01946b_c15d4967_75" src="https://github.com/user-attachments/assets/ba7dfceb-987f-4309-b13c-6cff9bb04e8f" />
 
-<img width="752" height="519" alt="1000071279" src="https://github.com/user-attachments/assets/87edd9f9-261e-4b75-b52f-dc49c176da3e" />
+ㅤㅤ<img width="752" height="519" alt="1000071279" src="https://github.com/user-attachments/assets/87edd9f9-261e-4b75-b52f-dc49c176da3e" />
 
 
 # ㅤㅤㅤㅤ $\color{PowderBlue}꒰$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{MistyRose}𝒩𝑒𝓀𝑜𝑔𝒶˳𝓃𝑒𝓀𝑜𝒹𝑒˳𝒶𝓇𝓊˳𝓎𝑜𝓊𝓃𝒾$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{PowderBlue}꒱$
