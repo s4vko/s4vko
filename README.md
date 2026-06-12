@@ -1,4 +1,3 @@
-# ㅤㅤㅤㅤ $\color{CadetBlue}⪩⪨$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{PaleVioletRed}𝒴𝒰𝒦𝐼𝑀𝐼-𝒞𝐻𝒜𝒩ㅤ𝐹𝒜𝒩$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{CadetBlue}⪩⪨$
 
 ㅤ<img width="752" height="519" alt="1000071297" src="https://github.com/user-attachments/assets/0fc759fc-a3ba-4eab-8085-67a52d99e8c6" />
 
