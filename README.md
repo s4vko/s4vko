@@ -1,5 +1,3 @@
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=𝒩𝒶𝒽,+𝒾+𝑔𝑜𝓉𝓉𝒶+𝓌𝒶𝓉𝒸𝒽+𝓂𝓎+𝒶𝓃𝒾𝓂𝑒)](https://git.io/typing-svg)
-
 
 ㅤ<img width="752" height="519" alt="1000071279" src="https://github.com/user-attachments/assets/87edd9f9-261e-4b75-b52f-dc49c176da3e" />
 
