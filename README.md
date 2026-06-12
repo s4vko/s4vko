@@ -1,13 +1,13 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=ㅤ+ㅤ+ฅ/ᐠᓀ+ﻌ+ᓂマฅ+੭+meow+ㅤ+ㅤ&style=plastic&abbreviated&color=FFB6C1) <img width="20" height="20" alt="tumblr_204cfeb8f36b1dd06763d6810e01946b_c15d4967_75" src="https://github.com/user-attachments/assets/ba7dfceb-987f-4309-b13c-6cff9bb04e8f" />
 
-<img width="775" height="534" alt="1000070933" src="https://github.com/user-attachments/assets/607e4190-b191-4678-9ec6-9571351f2b81" />
+<img width="752" height="519" alt="1000071279" src="https://github.com/user-attachments/assets/87edd9f9-261e-4b75-b52f-dc49c176da3e" />
+
 
 # ㅤㅤㅤㅤ $\color{PowderBlue}꒰$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{MistyRose}𝒩𝑒𝓀𝑜𝑔𝒶˳𝓃𝑒𝓀𝑜𝒹𝑒˳𝒶𝓇𝓊˳𝓎𝑜𝓊𝓃𝒾$ <img width="25" height="30" alt="tumblr_00c74c7a072ad5d3eda19e15d1bac96b_fd5b5fe4_500 (2)" src="https://github.com/user-attachments/assets/ca6b8816-dbdc-48b6-a117-1fe2df077879" /> $\color{PowderBlue}꒱$
 ### ㅤㅤㅤㅤㅤㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>ㅤ $\color{Cornsilk}˖⏖ㅤⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖⏖$ ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
-ㅤ<img width="785" height="23" alt="1000070918" src="https://github.com/user-attachments/assets/95d68e07-082a-4697-83de-f793bb874f99" />
-
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<img width="512" height="34" alt="1000071273" src="https://github.com/user-attachments/assets/48b84c03-3a52-4a49-b4d1-2fa7eaa55ea4" />
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" />
 <img src="https://popteamepic.carrd.co/assets/images/gallery61/d4cfb3bd.png?v10408301085951"><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ec862055-4309-4d2c-a69a-85a07f58bfa2" /><img src="https://i.ibb.co/ZR4mxk10/pinkandgreen.webp">
@@ -43,7 +43,7 @@
 <img src="https://64.media.tumblr.com/da2577ae781ca516a06ba667f81fa77e/671a623c5b532460-1f/s100x200/ecaf9dbf8d11a2f864966b58cd00917e344d9f83.webp">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f4b0b83b-48d9-4aca-a44a-315a53f27f07/d9ssxqq-9c638110-01fd-49c2-9e00-de449303bb4b.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y0YjBiODNiLTQ4ZDktNGFjYS1hNDRhLTMxNWE1M2YyN2YwN1wvZDlzc3hxcS05YzYzODExMC0wMWZkLTQ5YzItOWUwMC1kZTQ0OTMwM2JiNGIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.W0ULIpLbpjztEIAIl7mutrBDldZn12RfTs2R2zOHvHc">
 
-ㅤ<img width="785" height="23" alt="1000070918" src="https://github.com/user-attachments/assets/95d68e07-082a-4697-83de-f793bb874f99" />
+ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ <img width="512" height="34" alt="1000071273" src="https://github.com/user-attachments/assets/48b84c03-3a52-4a49-b4d1-2fa7eaa55ea4" />
 
 
 
