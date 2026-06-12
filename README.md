@@ -1,10 +1,9 @@
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=𝒩𝒶𝒽,+𝒾+𝑔𝑜𝓉𝓉𝒶+𝓌𝒶𝓉𝒸𝒽+𝓂𝓎+𝒶𝓃𝒾𝓂𝑒)](https://git.io/typing-svg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=ㅤ+ㅤ+ฅ/ᐠᓀ+ﻌ+ᓂマฅ+੭+meow+ㅤ+ㅤ&style=plastic&abbreviated&color=FFB6C1) <img width="20" height="20" alt="tumblr_204cfeb8f36b1dd06763d6810e01946b_c15d4967_75" src="https://github.com/user-attachments/assets/ba7dfceb-987f-4309-b13c-6cff9bb04e8f" />
 
 ㅤ<img width="752" height="519" alt="1000071279" src="https://github.com/user-attachments/assets/87edd9f9-261e-4b75-b52f-dc49c176da3e" />
 
 
-# ㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=𝒩𝒶𝒽,+𝒾+𝑔𝑜𝓉𝓉𝒶+𝓌𝒶𝓉𝒸𝒽+𝓂𝓎+𝒶𝓃𝒾𝓂𝑒)](https://git.io/typing-svg)
 ### ㅤㅤㅤㅤㅤㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>ㅤ $\color{Cornsilk}˖⏖ㅤⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs, ⲛⲁrⲥⲓssⲓsⲧs, ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrsㅤ˖⏖$ ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ <img width="512" height="34" alt="1000071273" src="https://github.com/user-attachments/assets/48b84c03-3a52-4a49-b4d1-2fa7eaa55ea4" />
