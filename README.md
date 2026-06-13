@@ -1,5 +1,5 @@
 
-<img width="740" height="514" alt="1000071329" src="https://github.com/user-attachments/assets/f76efb9f-b871-4908-8d04-e6f4983d7439" />
+![1000071330](https://github.com/user-attachments/assets/76eeb70a-7f66-4562-ae6e-922853bcb55a)
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{NavajoWhite}˖⏖ⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
