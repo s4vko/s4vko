@@ -1,7 +1,7 @@
 
 ![1000071330](https://github.com/user-attachments/assets/76eeb70a-7f66-4562-ae6e-922853bcb55a)
 
-ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤ  <img width="80" height="15" alt="image" src="https://github.com/user-attachments/assets/62a75293-e2b1-4442-ac2b-89c7e45597dd" />
+ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤ ㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ  <img width="80" height="15" alt="image" src="https://github.com/user-attachments/assets/62a75293-e2b1-4442-ac2b-89c7e45597dd" />
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{NavajoWhite}˖⏖ⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
