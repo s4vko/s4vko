@@ -48,7 +48,7 @@
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤ <img width="512" height="34" alt="1000071273" src="https://github.com/user-attachments/assets/48b84c03-3a52-4a49-b4d1-2fa7eaa55ea4" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤㅤㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=LOVE✨Yukimi-chan.&style=plastic&abbreviated&color=FF69B4) <img alt="" referrerpolicy="same-origin" src="https://files.catbox.moe/x1m5fm.gif" style="" title="">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ![](https://komarev.com/ghpvc/?username=s4vko&label=LOVE✨Yukimi-chan.&style=plastic&abbreviated&color=FF69B4) <img alt="" referrerpolicy="same-origin" src="https://files.catbox.moe/x1m5fm.gif" style="" title="">
 
 
 
